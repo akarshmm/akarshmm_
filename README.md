@@ -1,2 +1,2 @@
 # akarshmm_
-THE _HINDU @copywrite
+THE_HINDU @copyright.
